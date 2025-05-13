@@ -1,4 +1,4 @@
-## Hello World, Eu sou Yuri! 👋
+## Hello World, Eu sou guilherme lorimier! 👋
 
 - 🔭 hoje neu estou terminando o ensino medio
 - 🌱 sou lutador de MMA sonhando no profissional 
